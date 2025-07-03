@@ -1,2 +1,2 @@
-# ODD-KIT-
-Unemployment 
+# ODD-KIT-EXCLUSIVE-LIFESTYLE 
+self-employed 
